@@ -1,1 +1,0 @@
-Journey begin for 50 days
